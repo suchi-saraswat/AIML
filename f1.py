@@ -1,0 +1,3 @@
+ARTIFICAL INTELLIGENCE AND MACHINE LEARNING
+hello idiot
+harshwardhan tiwari
